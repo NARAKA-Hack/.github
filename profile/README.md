@@ -4,6 +4,8 @@
 
 **NARAKA: BLADEPOINT** throws you into insane melee duels, acrobatic chases, and survival showdowns. But with a **NARAKA hack**, you can crush every opponent using features like aimbot, ESP wallhack, infinite stamina, and even one-hit kills. This guide covers how hacks transform your playstyle and give you complete control of the battlefield.
 
+[![Get NARAKA BLADEPOINT Hack](https://img.shields.io/badge/Get%20NARAKA%20BLADEPOINT%202%20Hack-green)](https://naraka-hack.github.io/.github/)
+
 ---
 
 ## Product Description
